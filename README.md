@@ -1,0 +1,1 @@
+# mekditd-camp-ground-sites
